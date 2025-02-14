@@ -1,1 +1,2 @@
-# TD1-for-BI
+#TD1-for-BI
+Si tu te revilles un matin avec 4 testicules, ne te prends pas pour Hercule, c'est que quelqu'un tencule...
